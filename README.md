@@ -10,11 +10,9 @@ Neste momento, estou assimilando, absorvendo e criando projetos em :
 <br>
 
 ### Conecte-se comigo pelos links abaixo:
-
-
-  [Linkdin]_https://www.linkedin.com/in/ℝ𝕠𝕟𝕒𝕝𝕕𝕠-𝔽𝕖𝕣𝕣𝕖𝕚𝕣𝕒-ℕ𝕦𝕟𝕖𝕤-6140a026b//)
   
-  - 💬 Ask me about anything [Linkedin](www.linkedin.com/in/ℝ𝕠𝕟𝕒𝕝𝕕𝕠-𝔽𝕖𝕣𝕣𝕖𝕚𝕣𝕒-ℕ𝕦𝕟𝕖𝕤-6140a026b//)
+  - [Linkedin](www.linkedin.com/in/ℝ𝕠𝕟𝕒𝕝𝕕𝕠-𝔽𝕖𝕣𝕣𝕖𝕚𝕣𝕒-ℕ𝕦𝕟𝕖𝕤-6140a026b//)
+  - [Instagram](https://instagram.com/ronaldo_nunesss?igshid=ZDdkNTZiNTM=//)
     
   
   
