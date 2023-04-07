@@ -11,7 +11,7 @@ Neste momento, estou assimilando, absorvendo e criando projetos em :
 
 ### Conecte-se comigo pelos links abaixo:
   
-  - [Linkedin](www.linkedin.com/in/ℝ𝕠𝕟𝕒𝕝𝕕𝕠-𝔽𝕖𝕣𝕣𝕖𝕚𝕣𝕒-ℕ𝕦𝕟𝕖𝕤-6140a026b//)
+  - [Linkedin](https://www.linkedin.com/in/%E2%84%9D%F0%9D%95%A0%F0%9D%95%9F%F0%9D%95%92%F0%9D%95%9D%F0%9D%95%95%F0%9D%95%A0-%F0%9D%94%BD%F0%9D%95%96%F0%9D%95%A3%F0%9D%95%A3%F0%9D%95%96%F0%9D%95%9A%F0%9D%95%A3%F0%9D%95%92-%E2%84%95%F0%9D%95%A6%F0%9D%95%9F%F0%9D%95%96%F0%9D%95%A4-6140a026b//)
   - [Instagram](https://instagram.com/ronaldo_nunesss?igshid=ZDdkNTZiNTM=//)
     
   
